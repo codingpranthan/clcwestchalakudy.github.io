@@ -1,1 +1,1 @@
-# clcwestchalakudy.github.io
+# codingpranthan.github.io
